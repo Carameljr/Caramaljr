@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **paritakkhosuwan@gmail.com**
 
-- 📄 Know about my experiences [https://ibit.ly/Canva_Caramelj_resume](https://ibit.ly/Canva_Caramelj_resume)
+- 📄 Know about my experiences [https://shorturl.at/fiqsC](https://shorturl.at/fiqsC)
 
 - ⚡ Fun fact **if you want to get to know me just hire me!!**
 
